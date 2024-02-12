@@ -1,4 +1,4 @@
-desearia que tu sangre siguiera
-que las noches de alegria volvieran
-los dias siguientes no tienen manera
-de que las sonrisas pasadas se fueran
+flor de deforme y amorfa corola
+caigo ante ti y me revelo feliz
+llueve y nos tapamos, dulce regaliz
+te veo en mi té, te recuerdo sola
